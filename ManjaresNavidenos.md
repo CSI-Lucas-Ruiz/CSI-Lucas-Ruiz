@@ -1,12 +1,12 @@
 # manjares Navidenos
 ## Pasteles de yuca 
 ### Ingredinetes: 
--Yuca
--Manteca vegetal
--Acetie de achiote
--Leche fresca
--Aji Dulce
-🧂- Sal 
+-Yuca, 4 tazas
+-Manteca vegetal (4 cucharadas)
+-Acetie de achiote (2 cucharadas) 
+-Leche fresca (1/4 de taza)
+-Aji Dulce (2 bien picaditos y sin semillas)
+🧂- Sal (a tu gusto)
 -Acetie Vegetal
 
 #### Referencias
