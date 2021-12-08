@@ -28,7 +28,9 @@
 1. ralle la Yuca y exprima para sacarle un poco de amlidon
 2. Anada la manteca, sal y suficiente leche para que la masa quede un poco blanda y suave.
 3. corta la carne, jamon, tocino en pedasos pequenos.
-4. Mezcle la carne con las horisontales
+4. Mezcle la carne con las hortalizas y anada sal.
+5. ponga un caldero todo junto y cueza a fuego lento.
+6. si es necesario, puede agregar un poco de agua antes de retirar a carne del fuego y cuando las hortaizas
 
 
 #### Referencias
