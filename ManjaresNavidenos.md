@@ -30,7 +30,9 @@
 3. corta la carne, jamon, tocino en pedasos pequenos.
 4. Mezcle la carne con las hortalizas y anada sal.
 5. ponga un caldero todo junto y cueza a fuego lento.
-6. si es necesario, puede agregar un poco de agua antes de retirar a carne del fuego y cuando las hortaizas
+6. si es necesario, puede agregar un poco de agua antes de retirar a carne del fuego y cuando las hortaizas esten cocidas anadan las alcapparas.
+7. Limpie las hojas y pedazos como 10 pulgadas cuadradas y amprtigue sobre fuego bajo.
+8.pase manteca con achitoe sobre cada pedazo, agregue masa y extendia hasta 6 pulgadas de 
 
 
 #### Referencias
