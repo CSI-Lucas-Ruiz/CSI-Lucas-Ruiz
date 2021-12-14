@@ -41,3 +41,7 @@
 
 #### Referencias
 https://www.recetaspuertorico.com/recetas/pasteles-de-yuca/
+
+#### Video
+
+https://www.youtube.com/watch?v=7ww20VR1Cgg
