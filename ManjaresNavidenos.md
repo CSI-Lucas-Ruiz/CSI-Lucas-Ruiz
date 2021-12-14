@@ -32,7 +32,11 @@
 5. ponga un caldero todo junto y cueza a fuego lento.
 6. si es necesario, puede agregar un poco de agua antes de retirar a carne del fuego y cuando las hortaizas esten cocidas anadan las alcapparas.
 7. Limpie las hojas y pedazos como 10 pulgadas cuadradas y amprtigue sobre fuego bajo.
-8.pase manteca con achitoe sobre cada pedazo, agregue masa y extendia hasta 6 pulgadas de 
+8.pase manteca con achitoe sobre cada pedazo, agregue masa y extendia hasta 6 pulgadas de ancho y largo
+9. agrege 2 cucharadas de relleno en un lado y extendidade un extremo a otro.
+10. Doble las hojas para que se unan las orillas de la masa debe quedar con 6 pulgadas de largo y 3 de ancho
+11. envuelva doble los exteremos de la hoja hacia abajo
+12. heirva en agua con sal de 30 a 45 minutos.
 
 
 #### Referencias
